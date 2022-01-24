@@ -12,5 +12,5 @@ Hosts
 Upcoming Guests
 ---------------
 
-* Jonnie Shemoon
-* Craig Craw
+* [Jonnie Shemoon](https://www.instagram.com/jonnieshemoon/)
+* [Craig Craw](https://www.instagram.com/craigcrawmedy/)
