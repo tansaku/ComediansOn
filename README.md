@@ -12,6 +12,9 @@ Hosts
 Upcoming Guests
 ---------------
 
-* [Jonnie Shemoon](https://www.instagram.com/jonnieshemoon/) Feb 6th 6:30pm (Sun)
-* [Johnnie CT](https://www.instagram.com/vil11ain/) Feb 27th 6:30pm (Sun) (TBC)
 * [Craig Craw](https://www.instagram.com/craigcrawmedy/) Mar 7th 7:00pm (Mon)
+
+Previous Guests
+---------------
+
+* [Jonnie Shemoon](https://www.instagram.com/jonnieshemoon/) [Feb 6th 6:30pm (Sun)](https://www.youtube.com/watch?v=5oa3nWWT4GQ)
